@@ -1,0 +1,2 @@
+# AskAway
+Imagine this, ask any question your mind can think of with lots of detail and someone will answer exactly what you're looking for. It will always be verified by the thousands of people working for Ask Away. You compromise when you type in on your favorite search engine without even realizing, sometimes you don't truly figure out what you were searching for but now that's in the past. Find out what you really were searching for, Ask Away.
